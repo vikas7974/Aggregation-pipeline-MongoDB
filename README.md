@@ -1,1 +1,1 @@
-I will update Readme after this project questions will be over. THANKYOU!
+I will update the Readme after all the questions of this project will be over. THANKYOU!
